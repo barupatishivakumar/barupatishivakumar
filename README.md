@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @barupatishivakumar
+- 👀 I’m interested in java programming and i loved it 
+- 🌱 I’m currently learning java fullstack development
+- 💞️ I’m looking for an opportunity to prove my skills and as well as improve my knowledge
+- 📫 How to reach me ...to reach me pleass find my mail id it was barupatishivakumar@gmail.com.
